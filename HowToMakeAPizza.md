@@ -8,3 +8,5 @@
 2. darle la forma redonda
 3. poner piña, queso y jamon
 
+Terminar esto para probar hacerlo por mi cuenta
+ayudar a cocinar la pizza
